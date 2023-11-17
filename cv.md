@@ -16,7 +16,7 @@ My drive to create something new inspires me to seek creative solutions and inno
 One of my strengths is a high level of communicability. I can establish common ground with different people, facilitating successful teamwork. My experience in learning and developing personal skills demonstrates my readiness for continuous self-improvement.
 
 **Experience:**
-Currently, my work experience is limited to the absence of formal experience. However, I am ready to contribute my knowledge and enthusiasm to a new field. My experience in education and self-learning, as well as the ability to quickly absorb new information, makes me adaptive and prepared for any professional tasks.
+Currently, my work experience is limited to the absence of formal experience. However, I am ready to contribute my knowledge and enthusiasm to a new field. My experience in education and self-learning, as well, as the ability to quickly absorb new information, makes me adaptive and prepared for any professional tasks.
 
 I am confident that my qualities and commitment to development can significantly enrich your team. I am ready to start my professional journey and invest all my energy in achieving common goals.
 
